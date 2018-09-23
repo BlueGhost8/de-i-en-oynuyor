@@ -1,1 +1,1 @@
-# de-i-en-oynuyor
+# degisen-oynuyor
